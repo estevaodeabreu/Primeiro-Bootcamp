@@ -1,0 +1,22 @@
+# strogonof de Fango :chicken:
+
+### Ingredientes
+
+#####  - 1 quilo de peito de rango
+
+#####  - 1 tablete de caldo de galinha
+
+##### - 1 caixa de creme de leite
+
+#####  - etc...
+
+
+
+ 
+
+
+
+
+
+
+
